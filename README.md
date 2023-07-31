@@ -1,1 +1,0 @@
-# aritecgrp.github.io
